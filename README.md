@@ -1,1 +1,1 @@
-# T-Rex-version-movile
+# JUEGOS-COMPATIBLES-CON-DISPOSITIVOS-AM2
